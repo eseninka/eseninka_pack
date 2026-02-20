@@ -1,1 +1,1 @@
-archive of sketches on various subjects
+Archive of sketches on various subjects
